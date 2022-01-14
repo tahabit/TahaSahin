@@ -7,6 +7,10 @@
 - ⚡ Fun fact: I love guitars 🎸, chess ♟ and cycling 🚴‍♀️
 
 
+
+
+
+
 ## ⏲ What I’m doing now:
  I’m a student interested in software.
  
